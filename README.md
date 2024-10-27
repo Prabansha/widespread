@@ -1,1 +1,1 @@
-# widespreadbiz
+# widespread
